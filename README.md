@@ -1,3 +1,3 @@
 # ❗️DISCLAIMER❗️
 
-# Sizning harakatingizga men javob bermayman! ushbu dastur test uchun chiqarildi.
+[Telegram Channel✅️](https://t.me/Networking_Security)
